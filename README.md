@@ -1,1 +1,1 @@
-# Biz readme file qoshdik #
+# Biz loyxani boshladik
